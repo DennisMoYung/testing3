@@ -9,7 +9,7 @@ This solution is developed for:
 
 ## cxvxcvx
 1. Pcxvxcvsxcvcxvcxvecvxvxv
-     * [[Acxvxcvxcf](www.qq.com)
+     * [Acxvxcvxcf](www.qq.com)
      * [Oxcvxcvxvxvxcvf](www.google.com)
      * [CAxcvxcvxcvxcvxcf](www.yahoo.com)   
 2. xvcxvxvxvxvcvcxv
