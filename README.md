@@ -1,7 +1,7 @@
 ## abc
 - dcvfdsfjnvdsxjv:
 *bvdfvdv
-*fdggvdfbd
+fdggvdfbd
 
 ## sgsdgfdgd
 -FKLJF Lgdfgdgf.dfgdfhd
