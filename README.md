@@ -18,3 +18,6 @@
 -[gfddffd](www.yahoo.com)
 -[gdfdfg](www.yahoo.com)
 
+## dfs
+- Please install the following ttf before start using the exe
+ * [Adobe M](www.yahoo.com)
