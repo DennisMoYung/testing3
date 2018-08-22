@@ -20,4 +20,4 @@
 
 ## dfs
 - Please install the following ttf before start using the exe
-      _[Adobe M](www.yahoo.com)
+      -[Adobe M](www.yahoo.com)
