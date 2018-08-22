@@ -1,5 +1,5 @@
 ## abc
-- dcvfdsfjnvdsxjv:
+- dcvfdsfjnvdsxjv
 -bvdfvdv
 -fdggvdfbd
 
