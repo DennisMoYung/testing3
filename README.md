@@ -3,9 +3,9 @@
 - Thomas Jefferson
 ## abc
 
-*dcvfdsfjnvdsxjv
-*bvdfvdv
-*fdggvdfbd
+* dcvfdsfjnvdsxjv
+* bvdfvdv
+* fdggvdfbd
 - George Washington
 - John Adams
 - Thomas Jefferson
