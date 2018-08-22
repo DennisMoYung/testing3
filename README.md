@@ -9,9 +9,9 @@ This solution is developed for:
 
 ## cxvxcvx
 1. Pcxvxcvsxcvcxvcxvecvxvxv
-     * _[Acxvxcvxcf]_(www.qq.com)
-     * _[Oxcvxcvxvxvxcvf]_(www.google.com)
-     * _[CAxcvxcvxcvxcvxcf]_(www.yahoo.com)   
+     * [[Acxvxcvxcf](www.qq.com)
+     * [Oxcvxcvxvxvxcvf](www.google.com)
+     * [CAxcvxcvxcvxcvxcf](www.yahoo.com)   
 2. xvcxvxvxvxvcvcxv
 3. vxcxvxccvxxvcxvcxvxv
 4. cxvxcvxcvxcvxcvxcvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvve formation.
